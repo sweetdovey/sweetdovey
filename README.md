@@ -8,3 +8,7 @@ wip okay?? I LOST @SIRENCORE'S ACCESS OMFGGG
 　
 
 me and my < [three](https://github.com/L1tCigarett3) 3
+
+　
+
+🏆 :ㅤ[@pt-friendships tyy family<3](https://github.com/pt-friendships)ㅤ[@music-town](https://github.com/music-town)ㅤ[@the-tempist](https://github.com/THE-TEMPIST)ㅤ[@pt-everypony](https://github.com/pt-everypony)ㅤ[@pt-ships-nominations w my @L1tCigarett3](https://github.com/pt-ships-nominations)
