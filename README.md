@@ -11,4 +11,4 @@ me and my < [three](https://github.com/L1tCigarett3) 3
 
 　
 
-🏆 :ㅤ[@pt-friendships tyy family<3](https://github.com/pt-friendships)ㅤ[@music-town](https://github.com/music-town)ㅤ[@the-tempist](https://github.com/THE-TEMPIST)ㅤ[@pt-everypony](https://github.com/pt-everypony)ㅤ[@pt-ship-nominations w my @L1tCigarett3](https://github.com/pt-ship-nominations)
+🏆 :ㅤ[@pt-friendships tyy family<3](https://github.com/pt-friendships)ㅤ[@music-town as yurist1c](https://github.com/music-town)ㅤ[@the-tempist](https://github.com/THE-TEMPIST)ㅤ[@pt-everypony](https://github.com/pt-everypony)ㅤ[@pt-ship-nominations w my @L1tCigarett3](https://github.com/pt-ship-nominations)
