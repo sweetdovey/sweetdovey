@@ -1,4 +1,4 @@
-wip okay?? I LOST @SIRENCORE'S ACCESS OMFGGG
+wip okay?? I LOST @SIRENCORE'S ACCESS OMFGGG (+ new atabook coming up like soon)
 
 　
 
