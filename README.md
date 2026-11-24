@@ -1,5 +1,7 @@
 wip okay?? I LOST @SIRENCORE'S ACCESS OMFGGG (+ new atabook coming up like soon)
 
+also read this [document](https://docs.google.com/document/d/1xyQKaJMk572q85EjMQB2vKVMlEApbjXd7PjgoIRTkck/edit?tab=t.0) it is necessary to look at it and avoid these type of people
+
 　
 
 <div align="center">
